@@ -1,16 +1,72 @@
-## Hi there 👋
-
-<!--
-**theinterstellar9/theinterstellar9** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- [Nobita & Shizuka Drawing Tutorials: Easy Step-by-Step Guides](https://www.youtube.com/playlist?list=PLgI7NqQVE_juX4dhm2KPii5N-ayLkS-_n)
+- [Kill Your Lover (2024) Movie: Trailers, Reviews & More!](https://www.youtube.com/playlist?list=PLNAHfEon8qo_PrODP5-jVs13cnDgE0bQU)
+- [Kneecap 2024: The Movie - Official Trailers, Interviews & More!](https://www.youtube.com/playlist?list=PLEoB85L0xBPSK-GPuATUOGPCJ7-NzzIVX)
+- [Epic Movie Battles & Thrilling Ridges: A Cinematic Journey](https://www.youtube.com/playlist?list=PLzAKmbe-jLYVrbElm3eL3hRGq1ye_V2YD)
+- [Film Nobita Doraemon Full Movie Bahasa Indonesia: Petualangan Seru!](https://www.youtube.com/playlist?list=PLzAKmbe-jLYXN0i6bqw6AVaOQIwyo8Z-G)
+- [I Don't Know How She Does It (2011) Movie: Full Trailers, Clips & More!](https://www.youtube.com/playlist?list=PLiuTPcUHXh97lkOf41iN9VBQXxkMcKDn-)
+- [2011 Tabloid Movie Mania: Trailers, Reviews & More!](https://www.youtube.com/playlist?list=PLX1cEO4Gv4LBui-UeS_ID-j_maS-O8XsY)
+- [Nobita's Primitive Japan Adventures: Doraemon's Best Episodes!](https://www.youtube.com/playlist?list=PLuCJkpZYxxgJ7hi4LoofkF1OvElPIIsei)
+- [Danny Elfman: The Maestro of Movie Magic - Interviews & Insights](https://www.youtube.com/playlist?list=PLHH95_-3jHbkHpagyzljazyGA71Y_KHmv)
+- [2024 Movie Releases: Blind, Deaf, Mute & Beyond!](https://www.youtube.com/playlist?list=PLQP13DWLUxtXUMfsiFX0C-yLQPIKG7gDz)
+- [Lord of the Rings: Rise to War - Everything You Need to Know!](https://www.youtube.com/playlist?list=PLaxWmWH_41un5w2Akssh6JR95lZ_j07sC)
+- [Nobita & Shizuka Wedding Moments: Doraemon Movie Scenes & More!](https://www.youtube.com/playlist?list=PLzAKmbe-jLYVJWhy-zkQ6Xm5y-vM3Kcwq)
+- [Doraemon Nobita's Underwater Adventure: Telugu Full Movie & More!](https://www.youtube.com/playlist?list=PL1YqYBs_-b771ik2zRAxZBn_zYg0A8BEp)
+- [The Conspirator (2011) Movie: Trailers, Clips & More!](https://www.youtube.com/playlist?list=PLR0jfGJrfRoAERilLnfirtV7qmThPR6j7)
+- [Jee Ve Sohneya Jee (2024) Movie: Official Trailer, Songs, Interviews & More!](https://www.youtube.com/playlist?list=PL9zEsHn4PfUTOmQBbJ7mWrM3xZH85sWG4)
+- [Dive into the 2010 Chatroom Phenomenon: Movie Deep Dive & Analysis](https://www.youtube.com/playlist?list=PLgQg6-RFObZddSxfAFQhcq06Rw2W9zj6L)
+- [Doraemon: Nobita's Little Space War - Epic Adventure Playlist!](https://www.youtube.com/playlist?list=PLBMJfGSnVjZNGCjOolxY2lbzd1rtM7YT0)
+- [2011 Serbian Cinema: Beyond A Serbian Film](https://www.youtube.com/playlist?list=PLNAHfEon8qo9kmd3D3gMWOxV_GKgHuqe1)
+- [Doraemon Nobita and the Steel Troops 2: Release Date in India & More!](https://www.youtube.com/playlist?list=PLSGqp-Z4fT91huAGjKqUvkGzduAa-_8h7)
+- [2024 Sense & Sensibility: All You Need To Know!](https://www.youtube.com/playlist?list=PLecqWje8-O8ovDlYkq151RThDq69iuFuW)
+- [Nobita Crafts Part 1: Amazing DIY & Drawing Tutorials!](https://www.youtube.com/playlist?list=PLaxWmWH_41ulwoEgyfyPWApN6FF_oi16M)
+- [Nobita's Superhero Horror Adventures: Top Doraemon Movies!](https://www.youtube.com/playlist?list=PLC9R1rLFJvcYTmZGqwxPnQxkJi_gTKIS_)
+- [Swamp Shark (2011) - The Ultimate Syfy Creature Feature Playlist](https://www.youtube.com/playlist?list=PLEoB85L0xBPQu98nF9yIOm844sChBOGsG)
+- [Adorable Nobita & Shizuka Photos & Flipbooks! 💖](https://www.youtube.com/playlist?list=PLy4rYi3WF7zReLBXz75ku1ZtBhtY5n7oC)
+- [The Damned (2025): Movie Trailers, Reviews & Deep Dives!](https://www.youtube.com/playlist?list=PL8olEd8v_Jk9Tupbvx0vjPezmcEmbUeag)
+- [Il Faut Sauver Noël 2024: All Trailers & Clips!](https://www.youtube.com/playlist?list=PLgI7NqQVE_jvIugvEpq5YsxIWzR6euXiJ)
+- [Best of Nobita Episodes in Hindi: Doraemon Adventures!](https://www.youtube.com/playlist?list=PLX1cEO4Gv4LBAyMXELLgGJMq9_naz_QkX)
+- [Daybreakers (2010) Movie: Complete Guide & Analysis](https://www.youtube.com/playlist?list=PLUrVOq2axMbocEbAwiahM5McawEEbPvi9)
+- [Ultimate DC Animated Movie Universe Chronological Watch Order](https://www.youtube.com/playlist?list=PLXoOo479pQw4UEb8fg3GUcqvUzAv8Z0On)
+- [Kung Fu Panda 4 Netflix Australia Release Date & More!](https://www.youtube.com/playlist?list=PLmkktcV0YjXqpImT96w7_KwGm9eimf4yv)
+- [La Princesse de Montpensier (2011): A Journey Through Love, War, and Intrigue](https://www.youtube.com/playlist?list=PLnjUErQCRZUMedNkAa1xftB1CYkTiiKYI)
+- [নবীজির জীবনী বাংলা: সম্পূর্ণ কাহিনী](https://www.youtube.com/playlist?list=PLyCnCAK2Yzkrrh1BRai-xtnpIkPuZUbzW)
+- [Is Moana a Disney Princess? The Ultimate Guide!](https://www.youtube.com/playlist?list=PLHit7D-0cXsuhVHH0WpcVZll8N9XIpIvT)
+- [Orange (2010) Telugu Movie: Full Movie, Songs & More!](https://www.youtube.com/playlist?list=PLPd8O084RboqHPw6FZPKpnxAs9hF-uEhO)
+- [🔥 Torching 2024: The Ultimate Roast of the Year! 🔥](https://www.youtube.com/playlist?list=PLNAHfEon8qo8hPcyAdYFn4wURxQM2BVUK)
+- [2011 Movie Hop: Trailers, Reviews & More!](https://www.youtube.com/playlist?list=PLMT0v3dKR6AyvZ91lucdJ8EVG2-J4f25y)
+- [DAHOMEY (2024) Movie: Trailers, Reviews & More!](https://www.youtube.com/playlist?list=PL3Q4yTdT91azOZevtNnxz1CNnQZKZWaJK)
+- [The Casagrandes Movie (2024): Everything You Need To Know!](https://www.youtube.com/playlist?list=PLl3HeQ8FdJc8CjCF53z75VAbLiAOLxnWu)
+- [July 9th, 2010 Movie Releases & More: A Blast from the Past!](https://www.youtube.com/playlist?list=PLy4rYi3WF7zSrtwE8X9HAasXQgJZqVLC0)
+- [Nobita's Mermaid Adventures: Doraemon Movie & More!](https://www.youtube.com/playlist?list=PL8olEd8v_Jk9J7ZFdCA825ITOzSOqDCIb)
+- [Manjummel Boys 2024: Full Movie, Trailer, Review & More!](https://www.youtube.com/playlist?list=PLcSkv3I9gOcoBkShGkdWWq0Vwa8Z5EOyj)
+- [Is Moana a Disney Princess? The Ultimate Guide!](https://www.youtube.com/playlist?list=PLmkktcV0YjXrrFQASpMj8AkHVlyM5XjKq)
+- [I Am Living Proof (2025) Movie: Official Trailers, Reactions & More!](https://www.youtube.com/playlist?list=PLX1cEO4Gv4LDYrzVyjfZT2rCPlR2JejME)
+- [Amazon Prime's HOTTEST Movies Right Now! (2024-2025)](https://www.youtube.com/playlist?list=PL8olEd8v_Jk_R2tkzqew5QVBAfYCEiW8n)
+- [Universal Soldier: Regeneration (2010) - Epic Showdown & Action!](https://www.youtube.com/playlist?list=PLBMJfGSnVjZNrJzmJ4wFYHNoOa1zgGdbW)
+- [A Woman, a Gun, and a Noodle Shop: The Ultimate 2010 Movie Playlist](https://www.youtube.com/playlist?list=PLevUlbhuX1lt1AzlgcUCF95y5OHjcIywZ)
+- [Nobita, Doraemon & Sakura School Simulator Adventures!](https://www.youtube.com/playlist?list=PLEv-krsUOI8ttgnZ5UXwyNJe_pyTH_tfL)
+- [Doraemon Long Episodes & Movies: Nobita's Giant Adventures!](https://www.youtube.com/playlist?list=PLmVa-BlcAB9VpwuiVsLpFDH4dr-cUwVmd)
+- [2024 Movie & Travel Luggage Guide: Suitcases & Stories!](https://www.youtube.com/playlist?list=PLC9R1rLFJvcbB0TApXdSLLE81LXnPWZCe)
+- [Peacock Streaming: Live TV, On-Demand & More!](https://www.youtube.com/playlist?list=PL67i4ZwicJLNQtduOyD9L-t05vYYT-jQT)
+- [Is Amazon Prime Video Free with Airtel?  Ultimate Guide!](https://www.youtube.com/playlist?list=PLSGqp-Z4fT93BDQARlQQMc_MXq67lZqdE)
+- [Doraemon & Nobita's Egyptian Adventure: Full Movie & More!](https://www.youtube.com/playlist?list=PL4315PFPI_0muS0CpbvZkn9OKXhs7HuAL)
+- [Doraemon & Nobita's Hilarious Adventures: Hide & Seek, Challenges & More!](https://www.youtube.com/playlist?list=PL67i4ZwicJLN9fWA2j5XQuUWEefrAaND-)
+- [Kim Dae-jung: Legacy of a President - 2024 Documentary & Analysis](https://www.youtube.com/playlist?list=PLHit7D-0cXsuOnAW7QGwpE9ebkIQMOf2F)
+- [2011 Movie Releases: October Cinema Spotlight](https://www.youtube.com/playlist?list=PLcSkv3I9gOcok_VS0QzLD5I1__a49Food)
+- [Nobita Official Music Videos: The Complete Collection](https://www.youtube.com/playlist?list=PLRVyf5ybemkgQDA3V6PaZSDYMSzt_cSPP)
+- [Den Sista Resan (2024): The Ultimate Guide - Trailers, Interviews & More!](https://www.youtube.com/playlist?list=PLnjUErQCRZUPvfRKzoLn0-vSZBOnr48O-)
+- [Ezra (2024) Movie: Official Trailers, Reviews & More!](https://www.youtube.com/playlist?list=PLmp9upiZCeh399rGfbbzRTSvFAbcUeFiy)
+- [Nobita Comedy: Hilarious Doraemon Memes & More!](https://www.youtube.com/playlist?list=PL67i4ZwicJLNaprTZsqI34A5sa9nBSLhb)
+- [Nobita & Shizuka: The Sweetest Doraemon Moments!](https://www.youtube.com/playlist?list=PLvaMqgvQgbYP4ESaBag4LViZHZ630N6BS)
+- [The Rally (2010) Movie: Trailers, Reviews & More!](https://www.youtube.com/playlist?list=PLZvDK059EzD1nFDW9ChLoMlekeyFt0fa6)
+- [Nobita & Shizuka's Wedding: The Ultimate Doraemon Playlist](https://www.youtube.com/playlist?list=PLEv-krsUOI8syftoACZm8gdGClrwOutL6)
+- [2025 Movie vs 1938 Classics: A Cinematic Journey Through Time](https://www.youtube.com/playlist?list=PLgQg6-RFObZdARpk3ToDhrpfPlElxTjZG)
+- [Easy Step-by-Step Nobita & Shizuka Drawings: Learn to Draw Doraemon Characters!](https://www.youtube.com/playlist?list=PLHit7D-0cXssbSA1hhgrARyXQOrMDHyBG)
+- [Learn to Draw Nobita: Easy Step-by-Step Tutorials](https://www.youtube.com/playlist?list=PLr7THeXd6epD0zh2Z-q15_SSyYRQ4DuZO)
+- [Dive into the Magical World of Nobita and the Mermaids!](https://www.youtube.com/playlist?list=PLmp9upiZCeh3PdYqwUX9YWX1hqZNl1mVx)
+- [Nabi Da Zamana Honda: Best Naat Collection 2023-2024](https://www.youtube.com/playlist?list=PL8RWO1B6fFxPmRqcov4Xu-YbbU6BSywT2)
+- [Paddington & Paddington 2: A 2024 Cinematic Double Feature!](https://www.youtube.com/playlist?list=PLaxWmWH_41umXtEWDXo8ndfegLsZdJZvm)
+- [Doraemon Nobita: The Studious Devil & Other Thrilling Adventures!](https://www.youtube.com/playlist?list=PLy4rYi3WF7zTvP_SDBhK7R3eD1WvRwgGb)
+- [May 20, 2011 Movie Releases & More: A Blast from the Past!](https://www.youtube.com/playlist?list=PLBMJfGSnVjZPL6vPwBBjndEJ1iD0s5JtW)
+- [Flashback to March 18, 2010: Movies, Events & More!](https://www.youtube.com/playlist?list=PLGT5dwZP_ZY0m83XW0IGGIiCIaB8Je3G_)
+- [🔥 2024 Movie Kampta: Biggest Blockbusters & Trailers!](https://www.youtube.com/playlist?list=PL67i4ZwicJLM1Xa7E9AJovEy0G-RsuBI6)
